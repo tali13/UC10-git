@@ -25,7 +25,7 @@ essa serie se trata de dois irmãos que resolve casos sobre natural em lugares d
 
 ---
 
-![imagem da serie](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.primevideo.com%2F-%2Fpt%2Fdetail%2FSobrenatural%2F0JGM6MP5H1LJFDDNFBGP86ZSHH&psig=AOvVaw2ncS0XOwGL67DkAS8cMxEK&ust=1747941461208000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNjw3sCjtY0DFQAAAAAdAAAAABAE)
+![imagem da serie][(https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.primevideo.com%2F-%2Fpt%2Fdetail%2FSobrenatural%2F0JGM6MP5H1LJFDDNFBGP86ZSHH&psig=AOvVaw2ncS0XOwGL67DkAS8cMxEK&ust=1747941461208000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNjw3sCjtY0DFQAAAAAdAAAAABAE](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcScL5t91LNPwFU6McflCzXKLXXXAfAiB1QBSg&s)
 
 [trailer](https://www.youtube.com/watch?v=apltEQy8RzQ)
 
