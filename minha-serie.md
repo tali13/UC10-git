@@ -16,7 +16,7 @@ essa serie se trata de dois irmãos que resolve casos sobre natural em lugares d
 - [x] comedia
 ---
 | episodios|                     sobre a serie                                                       |
-|----------------------------------------------------------------------------------------------------| 
+|----------|-----------------------------------------------------------------------------------------| 
 |  1 ep    |  mãe mosta queimada por um espirito                                                     | 
 |  11 ep   |  espantalho vivo usado para manter uma fazenda                                          | 
 |   12 ep  | pacto com a morde em troca de milagres                                                  | 
