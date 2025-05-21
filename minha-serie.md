@@ -25,7 +25,7 @@ essa serie se trata de dois irmãos que resolve casos sobre natural em lugares d
 
 ---
 
-![imagem da serie][(https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcScL5t91LNPwFU6McflCzXKLXXXAfAiB1QBSg&s)
+![imagem da serie][(https://upload.wikimedia.org/wikipedia/pt/thumb/4/46/Supernatural_%28sexta_temporada%29.jpg/250px-Supernatural_%28sexta_temporada%29.jpg)
 
 [trailer](https://www.youtube.com/watch?v=apltEQy8RzQ)
 
